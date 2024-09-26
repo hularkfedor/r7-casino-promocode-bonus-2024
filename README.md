@@ -1,4 +1,4 @@
-# R7 Casino Промокод SPVIP: бонус 100% + 100 FS 
+# R7 Casino Промокод FVIP: бонус 100% + 100 FS 
 
 R7 casino промокод 2024 год - **FVIP**
 
